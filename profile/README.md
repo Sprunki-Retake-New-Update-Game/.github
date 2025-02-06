@@ -1,6 +1,6 @@
 ## Sprunki Retake New Update
 
-The **Sprunki Retake New Update** is the grand finale of the beloved Sprunki Retake series, offering fans an unparalleled music-making experience. This update serves as a heartfelt tribute to the community that has passionately supported the franchise, bringing the journey to a fulfilling close with refined animations, enriched soundscapes, and a comprehensive roster of iconic characters.
+The **Sprunki Retake New Update (Final Update)** is the grand finale of the beloved Sprunki Retake series, offering fans an unparalleled music-making experience. This update serves as a heartfelt tribute to the community that has passionately supported the franchise, bringing the journey to a fulfilling close with refined animations, enriched soundscapes, and a comprehensive roster of iconic characters.
 
 👉👉 Click to play [Sprunki Retake New Update](https://sprunkly.org/game/sprunki-retake-final-update)
 
